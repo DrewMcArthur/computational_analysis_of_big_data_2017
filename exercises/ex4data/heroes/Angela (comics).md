@@ -4,13 +4,13 @@
 {{Tone|date=January 2014}}
 }}
 {{Infobox comics character| <!--Wikipedia:WikiProject Comics-->
-|image           = [[Image:Angelamarveluniverse.jpg|250px]]
-|caption  = Angela's new appearance on the cover of ''[[Guardians of the Galaxy (1969 team)|Guardians of the Galaxy]]'', vol. 3 #6. Art by [[Sara Pichelli]] as conceived by [[Joe Quesada]].
+|image          = [[Image:Angelamarveluniverse.jpg|250px]]
+|caption        = Angela's new appearance on the cover of ''[[Guardians of the Galaxy (1969 team)|Guardians of the Galaxy]]'', vol. 3 #6. Art by [[Sara Pichelli]] as conceived by [[Joe Quesada]].
 |character_name = Angela
 |real_name      = Aldrif Odinsdottir
-|publisher      = [[Image Comics]] (March [[1993 in comics|1993]] – December [[2000 in comics|2000]])<br>[[Marvel Comics]] (March [[2013 in comics|2013]] – Present)
+|publisher      = [[Image Comics]] (March [[1993 in comics|1993]] – December [[2000 in comics|2000]])<br>[[Marvel Comics]] (March [[2013 in comics|2013]] – present)
 |debut          = ''[[Spawn (comics)|Spawn]]'' #9 (Image, March 1993)<br/>''[[Age of Ultron]]'' #10 (Marvel, June 2013)
-|creators       = [[Neil Gaiman]] (Writer)<br>[[Todd McFarlane]] (Artist)
+|creators       = [[Neil Gaiman]] (writer)<br>[[Todd McFarlane]] (artist)
 |alliances      = [[Guardians of the Galaxy (2008 team)|Guardians of the Galaxy]]
 |aliases        = The Hunter
 |species        = [[Asgard (comics)|Asgardian]]

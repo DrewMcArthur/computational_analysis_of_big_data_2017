@@ -30,7 +30,7 @@ Machine Man originally appeared in the pages of ''[[2001: A Space Odyssey (comic
 
 This title featured Machine Man entering the mainstream Marvel Universe. Jack Kirby wrote and drew the first nine issues, which dealt with the title character's status as a fugitive from the military after the death of his creator, and his first interactions with mankind. The book was canceled at the end of 1978 with X-51 finally standing up to the military.
 
-Machine Man appeared next in a three issue story arc within the pages of ''[[The Incredible Hulk]]'' #235–237.  The robot found himself battling the green giant within the suburban setting of his human friend, Dr. Peter Spaulding.  By the end of the storyline, he incurred a complete system shutdown, leading to the events portrayed in his relaunched monthly series.
+Machine Man appeared next in a three issue story arc within the pages of ''[[The Incredible Hulk (comic book)|The Incredible Hulk]]'' #235–237.  The robot found himself battling the green giant within the suburban setting of his human friend, Dr. Peter Spaulding.  By the end of the storyline, he incurred a complete system shutdown, leading to the events portrayed in his relaunched monthly series.
 
 The title was relaunched in issue #10 after a nine-month hiatus. Status quo in the book changed with Machine Man now living amongst humanity, and dealing with his own new-found emotions. [[Marv Wolfman]] came aboard as the new writer, partnered with artist [[Steve Ditko]], which helped set a different tone from Kirby's previous stories. Issue 15 saw a new writer, [[Tom DeFalco]], taking over the writing chores. The title lasted until issue #19, ending in February 1980.
 

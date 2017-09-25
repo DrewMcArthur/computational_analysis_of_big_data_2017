@@ -8,9 +8,9 @@
 | species = [[Mutant (Marvel Comics)|Human Mutant]]
 | publisher = [[Marvel Comics]]
 | debut= ''[[Uncanny X-Men]]'' #129 (January 1980)
-| creators = [[Chris Claremont]] <br />[[John Byrne (comics)|John Byrne]]
-| alliances =  [[All-New X-Men]]<br>[[X-Men]]<br>[[Excalibur (comics)|Excalibur]]<br>[[S.H.I.E.L.D.]]<br>[[New Mutants]]<br>[[Guardians of the Galaxy (2008 team)|Guardians of the Galaxy]]
-| aliases = Ariel, Sprite, Shadowcat, Star-Lord
+| creators = [[Chris Claremont]]<br />[[John Byrne (comics)|John Byrne]]
+| alliances =  [[All-New X-Men]]<br />[[X-Men]]<br>[[Excalibur (comics)|Excalibur]]<br>[[S.H.I.E.L.D.]]<br>[[New Mutants]]<br>[[Guardians of the Galaxy (2008 team)|Guardians of the Galaxy]]
+| aliases = Ariel<br />Sprite<br />Shadowcat<br />Star-Lord
 | supports=
 | powers = [[List of superhuman features and abilities in fiction#Intangibility or phasing|Phasing]]
 }}

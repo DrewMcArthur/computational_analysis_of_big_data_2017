@@ -1,7 +1,7 @@
 '''Trauma''' is the name of two fictional characters appearing in [[American comic book]]s published by [[Marvel Comics]].  These are separate characters in the Marvel Universe with two distinct origins. They are detailed separately below.
 
 ==Publication history==
-The first Trauma debuted in ''[[The Incredible Hulk]]'' #394 by [[Peter David]] and [[Gary Frank]].
+The first Trauma debuted in ''[[The Incredible Hulk (comic book)|The Incredible Hulk]]'' #394 by [[Peter David]] and [[Gary Frank]].
 
 The second Trauma debuted in ''[[Avengers: The Initiative]]'' #1 by [[Dan Slott]] and [[Stefano Caselli]].
 
@@ -14,7 +14,7 @@ The second Trauma debuted in ''[[Avengers: The Initiative]]'' #1 by [[Dan Slott]
 |real_name=Thow Mah
 |species=Troyjan
 |publisher=[[Marvel Comics]]
-|debut=''[[The Incredible Hulk]]'' #394 (1992)
+|debut=''[[The Incredible Hulk (comic book)|The Incredible Hulk]]'' #394 (1992)
 |creators=[[Peter David]]<br>[[Gary Frank]]
 |alliances=Troyjan Empire<br>[[Arm'Cheddon|Armageddon]]
 |aliases=
@@ -48,7 +48,7 @@ Trauma had superhuman strength and durability, making him slightly stronger than
 '''Trauma''' ('''Terrence Ward''') is a [[Fictional character|fictional]] [[comic book]] character. He is a teenage [[superhero]] in [[Marvel Comics]]' [[shared universe]], the [[Marvel Universe]]. Created by writer [[Dan Slott]] and artist [[Stefano Caselli]], he first appeared in ''[[Avengers: The Initiative]]'' #1 (April 2007).
 
 ===Fictional character biography===
-Terrence Ward's powers drove him away from his family,<ref name="ReferenceA">''Avengers: The Initiative Special'' #1</ref> and sent his mother to an insane asylum.<ref name="ReferenceB">''[[Avengers: The Initiative]]'' #1</ref> He is first introduced giving his codename<ref name="ReferenceB"/> as he receives his first costume. The team's drill-sergeant, The [[Gauntlet (comics)|Gauntlet]], refers to Trauma as "[[emo]]-boy." Trauma wears a black tee with a block "T" for his codename, a black foppish [[fringe (hair)|fringe]], and tight black jeans. 
+Terrence Ward's powers drove him away from his family,<ref name="ReferenceA">''Avengers: The Initiative Special'' #1</ref> and sent his mother to an insane asylum.<ref name="ReferenceB">''[[Avengers: The Initiative]]'' #1</ref> He is first introduced giving his codename<ref name="ReferenceB"/> as he receives his first costume. The team's drill-sergeant, The [[Gauntlet (comics)|Gauntlet]], refers to Trauma as "[[emo]]-boy." Trauma wears a black tee with a block "T" for his codename, a black foppish [[fringe (hair)|fringe]], and tight black jeans.
 
 Trauma's powers are first introduced in a [[Danger Room]]-like simulation overseen by Gauntlet and [[Henry Peter Gyrich]]. A scientist states that the powers-that-be are very interested in his "power set." Trauma's powers exploit the deepest fears in others, causing him to morph into a physical representation of that deep-seated fear. He must be within proximity to another person for these powers to work. During a training exercise with the other new heroes, Trauma morphs into a giant spider to exploit [[Armory (comics)|Armory]]'s fear. Armory loses her senses and begins firing blindly. She blasts off Komodo's arm and shoots [[Michael Van Patrick|MVP]] in the head while he attempts to protect [[Cloud 9 (comics)|Cloud 9]] from harm. Armory is "grounded" and expelled from Camp Hammond. Gyrich, who is overseeing the entire project, informs Trauma and Cloud 9 that the mishap "never happened."<ref name="Avengers: The Initiative #1">''Avengers: The Initiative'' #1</ref>
 
@@ -83,8 +83,8 @@ Trauma has the ability to shape-shift into his opponent's worst fear. At first, 
 
 ===Video games===
 
-*Troh-Maw appeared as an opponent in the [[PlayStation]] game ''[[The Incredible Hulk: The Pantheon Saga]]''.{{cn|date=August 2017}}
-*The Terrence Ward version of Trauma appears in ''[[Lego Marvel's Avengers]]'' as a playable character.{{cn|date=June 2016}}
+*Troh-Maw appeared as an opponent in the [[PlayStation]] game ''[[The Incredible Hulk: The Pantheon Saga]]''.{{citation needed|date=August 2017}}
+*The Terrence Ward version of Trauma appears in ''[[Lego Marvel's Avengers]]'' as a playable character.{{citation needed|date=June 2016}}
 
 ==References==
 {{reflist}}

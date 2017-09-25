@@ -3,7 +3,7 @@
 
 ==Claire Voyant==
 {{main|Black Widow (Claire Voyant)}}
-'''Claire Voyant''' is one of the first costumed, superpowered female protagonists in comics. Created by writer [[George Kapitan]] and artist [[Harry Sahle]], she first appeared in ''[[Mystic Comics]]'' #4 (Aug. 1940). She kills evildoers to deliver their souls to [[Satan]], her master. The character is unrelated to the later Marvel Comics superheroines who took on the codenames.
+'''Claire Voyant''' is the first costumed, superpowered female protagonist in comic books. Created by writer [[George Kapitan]] and artist [[Harry Sahle]], she first appeared in ''[[Mystic Comics]]'' #4 (Aug. 1940). She kills evildoers to deliver their souls to [[Satan]], her master. The character is unrelated to the later Marvel Comics superheroines who took on the codename.
 
 ==Natalia Romanova / Natasha Romanoff==
 {{main|Black Widow (Natasha Romanova)}}

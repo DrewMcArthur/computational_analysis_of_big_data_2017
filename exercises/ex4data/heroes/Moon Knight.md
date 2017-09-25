@@ -219,7 +219,7 @@ Huston accepted that the two characters had their similarities, but went on to c
 ==Powers and abilities==
 Over the course of his life as a boxer, [[United States Marine Corps|U.S. Marine]], [[mercenary]], and costumed superhero, Marc Spector has become an expert at hand-to-hand combat techniques and various martial arts. He is an Olympic-level athlete and a skilled acrobat and gymnast, and excels as a combat strategist. He employs a variety of weapons over the course of his career, including throwing darts, nunchaku, and a [[Club (weapon)|truncheon]]. He is skilled with most weapons, and an expert with throwing weapons. Spector is a superb driver and can pilot a helicopter.
 
-[[Taskmaster]], who has the ability to copy and replicate anyone's fighting style, has stated that he prefers not to copy Moon Knight's style, as Moon Knight would rather take a punch than block it.{{citation needed|date=August 2016}}
+[[Taskmaster (comics)|Taskmaster]], who has the ability to copy and replicate anyone's fighting style, has stated that he prefers not to copy Moon Knight's style, as Moon Knight would rather take a punch than block it.{{citation needed|date=August 2016}}
 
 [[File:Moon Knight descending.jpg|thumb|left|250px|Promotional art of Moon Knight descending from the [[List of vehicles in Marvel Comics#Moon Knight's Helicopter|Mooncopter]]. Art by [[David Finch (comics)|David Finch]].]]
 Spector gained his superhuman powers as a result of a visitation by the Egyptian moon god Khonshu. Moon Knight's strength, endurance, and reflexes are enhanced depending upon the phases of the moon.<ref>''Marvel Spotlight'' #28</ref> The fuller the moon, the more strength Moon Knight derives from it, though even during a new moon, he can lift several hundred pounds. He has some degree of superhuman strength during the peak of a lunar cycle, but he only gets superhuman strength from the lunar cycle. It's not known how much of this strength is mystical and how much is simply the result of self-hypnosis due to his psychological instability. Due to his multiple personalities, he is also resistant to some psychic attacks and sometimes receives prophetic visions. Moon Knight is shown to possess a very high tolerance for pain such as ignoring a bullet wound through his leg while only letting of a slight grunt of pain.{{issue|date=September 2016}}
@@ -233,7 +233,7 @@ Later on, Moon Knight's costume uses [[Adamantium#Carbonadium|carbonadium]] as a
 For transportation, Moon Knight employs a variety of sophisticated aircraft. These include the [[List of vehicles in Marvel Comics#Moon Knight's Helicopter|Mooncopter]] and Angelwing, featuring VTOL (vertical take-off and landing), a rope ladder, and 20&nbsp;mm cannons. Later, Moon Knight utilizes a remote controlled white limousine when acting as "Mr. Knight", and a similarly remote controlled crescent-shaped drone/glider when acting as Moon Knight.<ref>''Moon Knight'' Vol. 5 #1-2</ref> He has been seen using a white motorcycle.<ref>''Vengeance of Moon Knight'' #1</ref>
 
 ==Rogues gallery==
-While Moon Knight fights villains such as [[Bullseye (comics)|Bullseye]] and [[Taskmaster]] which are enemies of other heroes as well, he has also accumulated his own rogues gallery. Villains include:
+While Moon Knight fights villains such as [[Bullseye (comics)|Bullseye]] and [[Taskmaster (comics)|Taskmaster]] which are enemies of other heroes as well, he has also accumulated his own rogues gallery. Villains include:
 
 * [[Black Spectre]]
 * [[Bluebeard (comics)|Bluebeard]]

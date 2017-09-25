@@ -22,7 +22,7 @@
 |sortkey=Moonstone (comics)
 |}}
 
-'''Moonstone''' ('''Dr. Karla Sofen''') is a [[fictional character]], both a [[supervillainess]] and [[anti-hero]]ine appearing in [[American comic book]]s published by [[Marvel Comics]].
+'''Moonstone''' ('''Dr. Karla Sofen''') is a [[fictional character]], both a [[supervillain]] and [[anti-hero]]ine appearing in [[American comic book]]s published by [[Marvel Comics]].
 
 ==Publication history==
 The character first appeared as a [[gun moll]] of the villain [[Doctor Faustus (comics)|Dr. Faustus]] in ''[[Captain America (comic book)|Captain America]]'' (vol. 1) #192. She later appeared in issue #228 of ''[[Hulk (comics)|The Incredible Hulk]]'' where it was revealed that she was the psychiatrist of the former Moonstone [[Nefarius|Lloyd Bloch]] and that she tricked him into relinquishing the moonstone to her. She was later revealed to be a member of the shadowy organization known as the Corporation.

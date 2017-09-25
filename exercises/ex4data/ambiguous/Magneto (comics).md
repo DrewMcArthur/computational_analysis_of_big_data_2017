@@ -155,7 +155,7 @@ As part of the ''[[All-New, All-Different Marvel]]'' event, Magneto has been ret
 ===Civil War II===
 When an Inhuman named Ulysses who can "foresee the future" appears during a ''[[Civil War II]]'' event, Magneto and Storm's teams have a conflict about the safety of mutantkind, leading both teams to separate from each other and side with [[Iron Man]] and [[Carol Danvers|Captain Marvel]]'s factions respectively. While planning to capture Ulysses for the sake of mutantkind, Magneto's team are joined by Nightcrawler and some members of the original X-Men.<ref>''Civil War II: X-Men'' #1-3</ref><ref>''Civil War II'' #4-5</ref> After reaching Ulysses, Magneto asks him why he should not kill or capture him, and Ulysses shows him visions that lead to Magneto leaving Ulysses and New Attilan.{{issue|date=January 2017}} It is later shown to be a ploy by [[Medusa (comics)|Medusa]] to avoid conflict.{{issue|date=January 2017}}
 
-===Inhuman vs. X-Men===
+===Inhumans vs. X-Men===
 Following the ''[[Inhumans vs. X-Men]]'' storyline, Magneto was killed by Psylocke as part of an agreement if he was to ever regress back to the evil side. Upon being left for dead in the Savage Land, his body was found by Exodus and healed by Elixir.<ref>''Uncanny X-Men'' Vol. 4 #9</ref> Following the conclusion of between Inhumans and X-Men, with Medusa unleashes the device to destroy the Terrigen Cloud permanently, he was temporarily by a madden Emma, who lied to the rest of mutants about Cyclops' true death to trigger this war. He is later saved by Medusa and about to best Emma for her traitorous act, but Havok prevents him and Medusa to execute Emma for the sake of his late-older brother.<ref>"IVX" #6</ref>
 
 ===Secret Empire===

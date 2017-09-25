@@ -77,6 +77,14 @@ Harry is next seen in a psychiatrist's office, claiming to be getting over the e
 
 Afterwards, Harry is cut off financially and is forced out of his penthouse apartment. He moves into Peter's old room at May Parker's.<ref>''The Amazing Spider-Man'' #604</ref> He also begins secretly dating Amy Reilly (Peter's cousin).<ref>''The Amazing Spider-Man'' #605</ref> After May returns and is corrupted by [[Mister Negative]], she kicks Harry out of the house, forcing him to move in with Mary Jane Watson.<ref>''The Amazing Spider-Man'' #618-619</ref>
 
+
+
+
+
+===Venom===
+
+In Ultimate Spiderman, Harry Osborn(Venom) Took the symbiote also known as Klyntar and which where Peter Parker(Spider-Man) first wore the symbiote and then got passed down onto Eddie Brock(Venom) Full name Edward Brock Jr.  The symbiote was founded on the moon by the Astronaut “John ‘Jonah’ Jameson” 3rd also known as J. Jonah Jameson’s Son.
+
 ===Heroic Age===
 After Norman Osborn's [[Siege (Marvel Comics)|fall]], the American Son armor is stolen and the police begin questioning Harry as only someone of the Osborn bloodline can use the American Son armor. Harry is then shot in the chest by [[Gabriel Stacy and Sarah Stacy|Gabriel Stacy]], claiming that Norman gave Harry a better life.<ref>''Amazing Spider-Man Presents: American Son'' #1</ref> However, Harry is saved by American Son and taken to a hospital. After Harry recovers from his wounds, he is escorted home by police. Fearing the damage that could be done with the American Son armor and perplexed by his encounter with Gabriel, Harry decides to figure things out on his own. After enlisting the help of a talented reporter named [[Norah Winters|Norah]] from Frontline, Harry decides to visit Norman as only he would know about Gabriel. Harry and Norah eventually visit the [[The Raft (comics)|Raft]] where they find Norman in his cell consumed by madness. Harry demands to know about Gabriel but Norman is unresponsive. Frustrated, Harry and Norah begin to leave, but before they exit Norman briefly returns to his senses and tells Harry that Gabriel is indeed Norman's son.<ref>''Amazing Spider-Man Presents: American Son'' #2</ref>
 

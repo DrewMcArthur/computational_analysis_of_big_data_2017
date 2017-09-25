@@ -134,6 +134,8 @@ Red Hulk was listed as #41 on [[IGN]]'s "Top 50 Avengers".<ref>{{cite web |last=
 * Red Hulk is a playable character in the match-three mobile game ''[[Marvel Puzzle Quest]]''. He was added to the game as part of its second anniversary event in October 2015<ref>http://www.polygon.com/2015/10/1/9429395/marvel-puzzle-quest-birthday-galactus-boss-fight-year-two-second</ref>
 * Red Hulk appears as a palette swap for Hulk in ''[[Marvel vs Capcom 3: Fate of Two Worlds]]'', ''[[Ultimate Marvel vs. Capcom 3]]'', and ''[[Marvel vs. Capcom: Infinite]]''.
 
+* Red Hulk will be a playable character in [[Lego Marvel Super Heroes 2]]
+
 ===Other merchandise===
 Red Hulk has been merchandised in the form of toy action figures<ref>[https://www.amazon.com/Marvel-Universe-Action-Figure-Hulk/dp/B002AIX3N6 Marvel Universe 3 3/4" Series 4 Action Figure Red Hulk] at [[Amazon.com]], Accessed January 20, 2010</ref><ref>Marx, Julius. [http://www.actionfigureinsider.com/main/hulk-has-big-bad-toy-store-seeing-red "Hulk Has Big Bad Toy Store Seeing Red"] ''Action Figure Insider'', June 17, 2008</ref><ref>[http://www.cmdstore.com/marvel-legends-exclusive-red-hulk-baf-red-hulk-loose.html "Marvel Legends Exclusive Red Hulk Build-A-Figure Action Figure: BAF Red Hulk Loose"] CmdStore.com, Accessed January 2010</ref> and miniature statues.<ref>[http://starstore.com/acatalog/Starstore_Catalogue_MARVEL_STATUES___BUSTS_4635.html Marvel Statues & Busts], StarStore.com, Accessed January 20, 2010</ref>
 

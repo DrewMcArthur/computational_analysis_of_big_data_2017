@@ -62,3 +62,4 @@ Jackson Arvad is a brilliant scientist, especially in the field of electromagnet
 [[Category:Marvel Comics mutates]]
 [[Category:Marvel Comics superheroes]]
 [[Category:Marvel Comics supervillains]]
+[[Category:Spider-Man characters]]
